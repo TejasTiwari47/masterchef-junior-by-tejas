@@ -1,2 +1,0 @@
-# PRO-C26-MASTERCHEF-JUNIOR
-by tejas
