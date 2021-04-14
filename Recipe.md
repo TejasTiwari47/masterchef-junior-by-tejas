@@ -1,35 +1,6 @@
-# PRO-C26-MASTERCHEF-JUNIOR
-
-rasgulla recipe | bengali rosogulla | how to make sponge rasgulla
-
-PREP TIME:10 MINUTES
-
- COOK TIME:30 MINUTES
- 
-RESTING TIME:1/2 HOUR
-
- TOTAL TIME:1 HOUR 10 MINUTES
- SERVINGS:12
- 
- COURSE:SWEET
- 
- CUISINE:BENGALI
- 
- 
- INGREDIENTS -
-
-▢2 litre milk, full cream
-
-▢2 tbsp lemon juice
-
-▢1 cup sugar
-
-▢5 cup water
-
-▢3 pod cardamom
-
 
 INSTRUCTIONS
+
 
 firstly, in a large vessel get 2 litre milk of milk to a boil stirring occasionally.
 
@@ -69,8 +40,7 @@ now drop into ice-cold water immediately, to prevent from shrinking in size.
 
 once cooled completely, take into a serving bowl and pour in leftover sugar water.
 
-finally, enjoy rasgulla chilled or as it is.
+finally, enjoy the rasgulla
 
 
 
-RECIPE BY TEJAS
